@@ -1,0 +1,1 @@
+<a href="https://cl.ly/2r2V3q053e1A" target="_blank"><img src="https://dha4w82d62smt.cloudfront.net/items/1j2r1g420V0t0o37291b/Screen%20Recording%202018-03-24%20at%2010.11%20PM.gif" style="display: block;height: auto;width: 100%;"/></a>
